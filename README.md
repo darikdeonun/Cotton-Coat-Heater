@@ -1,1 +1,2 @@
-# Cotton-Coat-Heater
+# Cotton Coat Heater
+Electrical. Heated clothing has tiny wires sewn into a layer of the fabric. These tiny wires are typically made of carbon fiber or a metal composite, like nickel-chromium, that performs well under repeated heating and cooling cycles. These wires are known as the [cotton coat heater](https://superamazingstore.com/products/new-heated-jacket-coat-usb-electric-jacket-cotton-coat-heater-thermal-clothing-heating-vest-mens-clothes-winter) element. Are heated jackets really worth it? “Yes, yes, yes!” promises Silverman. “Heated jackets allow you to spend more time outdoors in cold weather and help you enjoy that time instead of being freezing cold. 
